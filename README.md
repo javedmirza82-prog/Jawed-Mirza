@@ -27,9 +27,8 @@
 ---
 
 ### 📫 Connect With Me  
-- 📧 **jawed@example.com**  
-- 🌐 [linkedin.com/in/jawed](#)  
-- 🖼️ [Instagram (Design Portfolio)](#)
+- 📧 **javedmirza82@gmail.com**  
+
 
 ---
 
